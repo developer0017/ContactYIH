@@ -17,6 +17,8 @@ wdj_1980121@yahoo.com
 password: woshiwangdejiang
 Contact on dropbox. Pakyunsok
 Waiting for result.
+When your boss come?
+
 
 To PaksongJun
 When do you come?
