@@ -22,3 +22,9 @@ When your boss come?
 
 To PaksongJun
 When do you come?
+
+
+Sorry, YIH's friends! I am KJC, YIH's friend.
+This is last use in your account.
+To YIH: Hi, I received your news today. Please contact here: github user:Aricmobile(or thwangdan224@gmail.com) pass: yjkmail422. Please contact asap. I am waiting you.
+I could not contact Pakyunsok. Perhaps his mail or dropbox account broken.
